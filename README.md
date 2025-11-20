@@ -1,0 +1,1 @@
+# VisualCron-Pro-No-Trial
